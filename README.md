@@ -1,4 +1,4 @@
-![screen-gif](https://media.tenor.co/images/9a295a597337e0c8bddb8f21ab177100/raw)
+![screen-gif](https://media.giphy.com/media/VcsGVTZuhqXfN8ipEr/giphy.gif)
 
 
 - 👋 Hi, I’m @prashaathr
